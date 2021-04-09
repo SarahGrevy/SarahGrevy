@@ -1,0 +1,1 @@
+- 👋 Hi, I’m @SarahGrevy. I'm interested in how people form collective moral judgements. Email: sgg327@nyu.edu
