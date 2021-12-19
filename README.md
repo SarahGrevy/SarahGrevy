@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @SarahGrevy. I'm interested in how people form collective moral judgements. Email: sgg327@nyu.edu
+- 👋 Hi, I’m @SarahGrevy, a data journalism student at Columbia University. Email: sgg2140@columbia.edu
