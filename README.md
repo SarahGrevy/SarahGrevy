@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @SarahGrevy. You should email me: sgg2140@columbia.edu
+- 👋 Hi, I’m @SarahGrevy. Feel free to email me with job offers: sgg2140@columbia.edu
