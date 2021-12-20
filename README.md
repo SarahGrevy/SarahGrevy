@@ -1,1 +1,2 @@
-- 👋 Hi, I’m @SarahGrevy. Email: sgg2140@columbia.edu
+- 👋 Hi, I’m @SarahGrevy. I'm a data journalist at Columbia University. 
+- Email: sgg2140@columbia.edu
