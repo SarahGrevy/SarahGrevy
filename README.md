@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @SarahGrevy, a data journalism student at Columbia University.
+- 👋 Hi, I’m @SarahGrevy, an aspirering data journalist at Columbia Journalism School.
 - Feel free to email me job offers: sgg2140@columbia.edu
