@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @SarahGrevy, an aspirering data journalist at Columbia University School of Journalism.
+- 👋 Hi, I’m @SarahGrevy, an investigative fellow at the Tow Center for Digital Journalism @Columbia University
 - Reach me at sgg2140@columbia.edu
